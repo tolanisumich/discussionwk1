@@ -1,2 +1,2 @@
 # discussionwk1
-<h1>tolanism</h1>
+<h1>Tolani Smith</h1>
